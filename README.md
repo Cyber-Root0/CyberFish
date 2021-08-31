@@ -23,7 +23,7 @@ CyberFish - Ferramenta de Phishing - FINS EDUCACIONAIS
 
 ## Redes Sociais (Contato):
 
-Email: boteistem@gmail.com
+Email: boteistem@yandex.com
 
 
 
